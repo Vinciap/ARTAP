@@ -1,2 +1,0 @@
-# ARTAP
-pjohhgg
